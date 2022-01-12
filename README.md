@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @janklingeer
+- 👀 I’m interested in nearly everything
+- 🌱 I’m currently learning Python, C and C++
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me: -contact me via instagram @janklingeer
