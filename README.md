@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @janklingeer
 - 👀 I’m interested in nearly everything
 - 🌱 I’m currently learning Python, C and C++
-- 💞️ I like to care for the environment, that's why I drive a straight-piped 2 stroke motorcycle.
+- 💞️ I like to care for the environment, that's why I ride a straight-piped 2 stroke motorcycle.
 - 📫 How to reach me: contact me via instagram @janklingeer
